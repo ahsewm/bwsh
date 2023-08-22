@@ -33,16 +33,13 @@
 6) Messenger https://shorturl.at/chzMY
 <br>
 <br>
-7) Online Shop https://shorturl.at/dvwV1
+7) Quora https://shorturl.at/npRW1
 <br>
 <br>
-8) Quora https://shorturl.at/npRW1
+8) Skype https://shorturl.at/rANS5
 <br>
 <br>
-9) Skype https://shorturl.at/rANS5
-<br>
-<br>
-10) Telegram https://shorturl.at/cotNO
+9) Telegram https://shorturl.at/cotNO
 </br>
 </br>
 </main>
